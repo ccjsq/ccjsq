@@ -1,16 +1,20 @@
-### Hi there 👋
+快连加速器 - 永远能连上的梯子
+🌍稳定运行已经超1500天！
 
-<!--
-**ccjsq/ccjsq** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🔒无需任何信息自动注册！
 
-Here are some ideas to get you started:
+🚀单独配置，3秒内连接！
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+👨已有2000W+用户登陆全球！
+
+点击在浏览器打开下载
+⏬ iOS 大陆用户下载教程
+⏬ iOS 海外商店版本链接
+⏬ 安卓版本.APK
+⏬ Windows 版本.exe
+⏬ macOS 版本.dmg
+⏬ 官方网站链接
+免费福利
+🎁下载快连VPN，免费领会员！
+
+🎁重新填写好友ID，可以额外领福利！
